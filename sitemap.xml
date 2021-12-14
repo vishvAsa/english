@@ -2,15 +2,26 @@
 <urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9"
   xmlns:xhtml="http://www.w3.org/1999/xhtml">
   <url>
-    <loc>https://vishvAsa.github.io/english/drama/</loc>
-  </url><url>
     <loc>https://vishvAsa.github.io/english/</loc>
+    <lastmod>2021-11-27T00:00:00+00:00</lastmod>
+  </url><url>
+    <loc>https://vishvAsa.github.io/english/prose/MT/</loc>
+    <lastmod>2021-11-27T00:00:00+00:00</lastmod>
+  </url><url>
+    <loc>https://vishvAsa.github.io/english/prose/</loc>
+    <lastmod>2021-11-27T00:00:00+00:00</lastmod>
+  </url><url>
+    <loc>https://vishvAsa.github.io/english/prose/MT/somAkhyAdi/</loc>
+    <lastmod>2021-11-27T00:00:00+00:00</lastmod>
+  </url><url>
+    <loc>https://vishvAsa.github.io/english/prose/MT/somAkhyAdi/2021-11-27_the-strange-case-of-the-apastamba-sprite/</loc>
+    <lastmod>2021-11-27T00:00:00+00:00</lastmod>
+  </url><url>
+    <loc>https://vishvAsa.github.io/english/drama/</loc>
   </url><url>
     <loc>https://vishvAsa.github.io/english/prose/misc/guru-anaerobic/</loc>
   </url><url>
     <loc>https://vishvAsa.github.io/english/prose/misc/</loc>
-  </url><url>
-    <loc>https://vishvAsa.github.io/english/prose/</loc>
   </url><url>
     <loc>https://vishvAsa.github.io/english/song/</loc>
   </url><url>
