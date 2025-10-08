@@ -128,3 +128,8 @@ just another dream with no sweetness.
 We as disciples will have our final success,  
 if we can put Nagarjuna in one of those Guru-bubbles.  
 For he seems to have rejected that also.
+
+## Shamkara Chaitanya Bharati
+Today, brother Aditya reminded me of an amazing story that I had completely forgotten about. This is about Shamkara Chaitanya Bharati, Bade Maharaj. 
+
+There was a huge Shastrartha in Varanasi. All the best scholars from around India had gathered. And the debate unfolded. It was chaired by Jayendra Sarasvati himself. As the discussion continued, it became clear that no one was seriously defending the Buddhist Madhyamika philosophy. So the Shamkaracharya asked Bharati Swami to take the Madhyamika side. And the arguments followed. Everybody had to surrender. Later, Swamiji requested that he not be assigned to defend the Madhyamika position.

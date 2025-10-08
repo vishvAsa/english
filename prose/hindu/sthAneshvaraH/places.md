@@ -234,3 +234,26 @@ So many bruises left behind, and so many prints, to last forever.
 I believe the very notion of home has been a placeholder for me  
 to start the journey from and not to conclude it.  
 But now, I am done with rediscovering myself. I want to come home.
+
+## Dissolving colors
+### Nalang
+It took me five decades to step into the house where I was born. It was not the exact same house, as the original house was burnt, but most of it was preserved. A small stone-roofed house in Nalang. I was six months when my family moved to Deep Nagar, near the border. I have some memories of being there. 
+
+One episode I still remember is, a ripe bunch of banana, and I must have been under 3 when I took a knife and started cutting the plant, and ended up seriously cutting my finger. I still have its scar.  
+I remember the rope swing from which I fell and complained to my mother that Auntie pushed the swing hard.  
+I do not remember falling ill but they said I almost died with typhoid around that time. My family believed that Kali gave me extra time. I can convince myself this is the case. It helps me find meaning in my life and on the contrary, it also helps me make fun of the divine as the chaotic outburst. Pure unintentional impulse. 
+
+### Dhading Besi
+One thing I vividly remember is the day we moved back to the mountain region of Dhading Besi. I must have been 4 by then. I do have a structured autobiographical memory afterward. But all the events are insignificant. My brother next to me was born in Deep Nagar. 
+
+I do not remember the faces of my relatives the way they used to look in those days. I know there were people visiting us, but I have no memory of any of their faces. Even after settling in Besi, I hardly made friends other than those who came to study under my father. But even their faces are now forgotten. 
+
+### Thopal
+One thing I remember is Thopal. In good days, I remember swimming in Thopal ponds, and in rainy days, I remember Thopal soaring high, sweeping the entire fields of Kudule. 
+
+I do not know why I remember the river more closely, even emotionally more closely than all my friends and relatives. Not a single drop of water that I once touched is left there to commemorate our sports. The tides were new every time. Even the songs that Thopal sang were different. 
+
+In the evening, we used to listen to the music of Thopal, enriched by the crickets. In the clean days with a full moon, we could see the entire Milky Way reflected on the lakes. There were friends across the river. I don't remember their names or forms. I know they were there. Thopal constantly flows in my memory, but not the forms of friends that I once played with.
+
+## Gorkha Kali temple
+I was just 12 when my father took me to Gorkha Kali temple. He wanted to leave me there at the feet of Kali, with the Nath Baba. He sincerely thought that I would get a better education there. After 3 decades, we were there at the feet of Kali again. In both occasions, he whispered some thousand mantras. I was able to memorize only a few.

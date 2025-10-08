@@ -233,3 +233,17 @@ Purpose, meaning, teleology: all these are human constructs to place us at the c
 When Siddhartha left his palace, he was not embarking the network of million franchises. When the giant elephants stroll through the forest, they give birthplace to million dung-beetles. The nature of a banyan tree is to grow tall. For some, it is a lovely shade or a nesting ground. For others, it is just a bunch of firewood.
 
 Your being here is a blessing. How the blessing is received is not for you to decide.+++(5)+++
+
+## Medicine
+### Allergies
+I used to get allergies. Long ago. Touch plants and allergies. Insect bite, and rashes all over the body. Just the sight of the caterpillars would give me allergies. My father brought the bark of needlewood (Chilaune in Nepali) and told me to rub it all over my body and wash. He said, you will feel pain all over your body as the needles go inside. If you cannot take it, you will always have allergies.
+
+I cried and rubbed the paste made of the bark. I rubbed the bark paste and screamed more. When washed, my body was as red as rhododendron. I never had the allergies afterward. I believe the allergies got scared.+++(5)+++
+
+### Headache
+Several years later, I got another problem. Headache. Again, my father said, extract the juice of Vitex negundo (Nepali Simali) leaves and serve 3 drops each in your nostrils. And he said, if you are scared, you will always have a headache. It was painful like nothing before. I think the headache decided to leave my body to never return.
+
+People were used to his crazy methods. Most would run away. And some who dared, lived a good life.
+
+He always taught me to endure pain.
+

@@ -138,3 +138,67 @@ And this goes all the way to the kitchen cabinet as it also affects the minister
 And like to good brothers, they come to some agreement.  
 For we can tolerate the tears of sorrow or of joy but the tears of onions?  
 Yes, this is the story of two great nuclear nations.+++(5)+++
+
+## News
+
+My brother asks me, a bit amused, why I have no news channels? I used to. The news channels from the right and the left. And I became numb. Either I had to collapse from information overload or o stop watching. Watching the wars in particular. But again, a disease of the modern age, I could never go away from reading the headlines. As if my agency has any meaning in the events that unfold every moment. 
+
+I think you can train yourself in watching and be a totally 'disinterested witness' with no desire to exercise your agency. For as long as your agency is glued to the factory of news networks, you are fake, your subjectivity is projected by the media, orchestrated by the corporations, and you exist so that the rich can be richer, and those in power can be more powerful. Eventually, some will be enlightened, live their normal life, while knowing all that is happening. A total Vedanta moment. 
+
+I resist growing. I want my tears back. I want simple laughter. I do not mind being swayed by the news. So I have to select what to read. 
+
+What moves me today is news from Sigas, Baitadi, in Nepal. A remote health post, a pregnant woman in delivery, complications, the nearest hospital six hours away, and even the roadways after four hours of walking. A single nurse assistant, Janaki Pujara, is helping with the delivery. The infant is not breathing. No help in sight. For six hours, Janaki breathes oxygen from mouth to mouth to the newborn. And the baby cries. A moment of joy, for both Janaki and the mother. 
+
+This is just another type of news.
+
+## Nepal revolution 2025 Appeal
+My Appeal to My Brothers and Sisters in Nepal
+
+Revolution is not an event determined in time. Revolution is constant. I appeal to the leaders and activists to embrace this mantra. But this is not to say that there should be bloodstained roads and cities in flames every day. We need a system that recognizes and embraces change from within.
+
+Revolutions are incomplete as long as the old actors retain their social agency. Like a tumor, the old actors need to be removed from the system, the social body. What we could not achieve in five decades, you achieved in five days. But what made our revolution meaningless? In the name of peaceful transition, we allowed old players to enter the game, and in every new revolution that the nation went through, the old actors continued to play their games. Agents changed, not the structure. Only the actors changed; the same old drama continued. Make this revolution complete.
+
+Recognize the wealth and strength of Nepal. One in three Nepalis lives abroad. Please do not treat those living abroad as enemies of the nation. Recognize the new world order. A nation-state is not just the physical barrier that you carve in the map. Involve them all in the process of nation-building.
+
+If your revolution is to exercise freedom from the grassroots level, suspend all the foreign donations and stop the INGOs from being involved in national affairs. Build courage to reject their money. No nation can be built on borrowed wealth.
+
+Do not carve Nepal as an antithesis. She deserves a positive identity. Make Nepal the land recognized for its wisdom, for its diversity and harmony, and for its love for peace. Make this nation known with Janaka and Buddha. The leaders of our generation carved Nepal as negation. No nation-state should be identified in terms of the negation of another nation-state.
+
+Your generation has to achieve what our generation failed to.
+
+## Rising from the Ashes
+I was in 9th grade when BP Koirala gave his speech in Tundikhel. I still remember his voice, his words, and his willingness to die or keep trying friendship (mel milāp) with the king. And starting the next day, we left our classrooms and marched on the streets. 
+
+My friends who marched on the streets for 15 years were not very different from the youth of this generation. After the change, some enjoyed power and money. The majority was displaced.
+
+There came another movement. The movement of the Maoists claimed to be the real movement of the proletariat. Some 17 thousand people were killed. All proletariats. All those who died were powerless people. Some road-workers, some teachers, some priests. Some teachers were attacked in the classroom. I was one of them. After the change, some enjoyed power and money. The majority was displaced.
+
+I welcome change. I love change. I believe in change. But change alone is not progress. Change itself has no teleology. Change alone cannot accomplish anything. Our blood boils against tyranny and corruption, and we revolt. And we hope this new change is our answer.
+
+Alas! As long as we do not change our inner constitution, as long as we, the people, are not willing to sit and reflect upon our core of being, our inner reality, these revolutions make no meaning. Yes, we need a spiritual revolution. We need to change our attitude.
+
+We knew our leaders were corrupt, but nonetheless, we elected them again and again. We knew our leaders were mass murderers, and we kept electing them again and again. We offered bribes and used our relations. We became our nemesis. And those who could not are still in the streets. And others have already left the country.
+
+The words of Bhupi Sherchan keep echoing: no nation is built without a few martyrs sacrificing their lives.
+
+Hope this is the final wheel of time demanding our blood. And hope the phoenix of Nepal rises again from the ashes, and this time, not to burn again. Hope this brings justice to people, and hope no more Neros come to rule us again.
+
+## Leaders & relatives
+Guruji said, 
+
+> "for the extreme forms of vice,  
+> one gets the result in this very life"   
+> (atyutkaṭasya pāpasya ihaiva phalam aśnute). 
+
+Guruji cited Gita: 
+
+> "when the virtue is spent,  
+> they return to the land of the mortals"  
+> (kṣīṇe puṇye martyalokaṃ viśanti).  
+
+Yours is not the only generation that revolted. Neither was mine. And there were great leaders who sacrificed everything for the system we have. 
+
+However, their children, their relatives, their connections, their dealers, all have exploited their names for the last three decades. Their relatives came to power by selling their names. And they became richer and richer. And today, I see many of my fair-minded brothers lamenting the decimation of their heritage, trying to erase their memory. 
+
+Their relatives sold them out. Their virtue ran over. And the same wheel will keep revolving.
+
