@@ -1,6 +1,7 @@
 +++
 title = "Privacy canary"
 +++
+Source: [TW](https://nikhilsd.com/india/)
 
 Privacy policy, copy-right, & canary
 
