@@ -79,3 +79,15 @@ The gates are the epistemic windows through which the self encounters the other,
 The guardians of water are oftentimes on top of the gates. There may also be Garuda the bird that carries nectar and defeats death, expressed by the snakes. The gates are where the jouissance flows uninterrupted. When Abhinava talks about prakasa and vimarsa expressed by "a" and "ha", he does relate the deepest of the organs, the skin, the carnality of the jouissance+++(=joy)+++, expressed in the orgasmic expression of "ah", the same jouissance rediscovered by the Bodhisattvas while guarding the temples and the same joy felt by the guardians at the gates of the Balinese temples.
 
 There is nothing when we look through inside: as if language of images is finite and finds its expression only when it is entering. It is in the entering within that the spheres appear as spheres, that the in-between manifests as if some other planes, but there are no layers from inside to actualize the world. The gates thus are ever-open wounds that are merely expunging what goes within. And what is expunged is not vanquished but are conserved in the skins, the walls of the temple. And this is where the sacred resides. Inside is nothing; it is not the thing that we encounter within. The sacred lies at the gates, the skin, that is an open-system, expressed by the wide-open eyes and the agape mouth.
+
+## Gestures
+He asked me to wear a Kusha grass ring and worship a cow in a coin. And he showed me three different gestures for the deities, rishies, and the fathers. He kept asking me to switch the side of the threads from right to left. We made some offerings to the sun. We invoked some Rishis in a small effigy made of grass. And we eventually offered the rice cake to the fathers. 
+
+Everything was about gestures. From the directions to the hand and knee positions, from standing offering to the sitting offering, from outdoor offerings and indoor offerings, there were just gestures at play. 
+
+Memorial rituals are quite complex if you do them traditionally. Three generations of ancestors enjoy three realms governed by Vasus, Rudras, and Adityas. I have known the priest since he married us. His world is constant, mine is constantly melting. He lives in a world governed by Manu. There is no governing principle in my world. +++(4)+++
+
+It is too difficult to fathom the mind of Rishis, for they live in metaphors. Theirs is the realm of meaning where sense and reference collide. I live in a dichotomous world. I am not concerned if the ball of rice makes any difference to my ancestors. 
+
+My communist friends would read these rituals as a means of social exploitation. My friend Glen would find metaphors and conceptual blending in the complexity of rituals. When we were kids, we liked the feast that involved these rituals. Our guests liked the donation part. We all had something or the other to like about it. Not those who passed away. They cannot like or not like anything. They are the placeholders for our efforts to uncover the meaning of being.
+

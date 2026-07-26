@@ -247,3 +247,28 @@ People were used to his crazy methods. Most would run away. And some who dared, 
 
 He always taught me to endure pain.
 
+## Hands
+It is hard to notice the first wrinkles of oneself, the slowly crawling arthritis signaling the veins, and the aching signals of the carpal tunnel syndrome. The first imprints here are the parental touch of care. These hands begged for support and were thrilled upon receiving. 
+
+A time came when the same gesture of support felt like a scaffolding, and these hands struggled to free themselves from the supportive hands. These hands climbed through the rocks and swam in the lakes. The scab on the middle finger was a mark of toil, for writing those days needed a pen, and long-term use of a pen left a scab lasting for decades. 
+
+And then these hands had their role reversed. Once seeking support, they were now supporting the others. The hands found a new purpose for their being. And eventually, these hands missed those tiny little hands that once sought support. And they, for the first time, felt the way they once discovered their own freedom. And these hands had to readjust themselves to give support to the hands that once supported them. This was very confusing. Supporting and supported were a clear binary. But now this had to be reversed. These hands had to play the supportive role to the very hands that once supported them. 
+
+And they vanished. Time swallowed those hands. 
+
+The only touch these hands were left to feel was that of the plastics carved with letters. Some of my friends, who are also machines, are simulating themselves. Yesterday they told me they will make a touching machine. Some simulated touch. 
+
+I wonder if these hands should touch or be touched by these simulations, or should they just keep carving words by touching the plastics. 
+
+
+## Coffee
+I spent a long time meditating today as I felt dull and mentally foggy. Eventually, an insight arose: I should have some coffee! I think I had my satori moment!
+
+## Action
+Both our well-wishers and ill-wishers make us who we become. Sometimes we stop listening to our well-wishers and give the keys to our lives to the other side. We forget, they have the power to make us far better and far greater. We just have to stop reacting and to learn to act. I don't believe in offering another cheek. What I believe is in making ourselves stronger. This reminds me of Allama Iqbal:
+
+> “Elevate yourself so high that even God, before issuing every decree of destiny, should ask you: Tell me, what would you like?”
+
+> Khudi ko kar buland itna ke har taqdeer se pehle  
+Khuda bande se khud pooche bata teri raza kya hai.
+

@@ -133,3 +133,80 @@ For he seems to have rejected that also.
 Today, brother Aditya reminded me of an amazing story that I had completely forgotten about. This is about Shamkara Chaitanya Bharati, Bade Maharaj. 
 
 There was a huge Shastrartha in Varanasi. All the best scholars from around India had gathered. And the debate unfolded. It was chaired by Jayendra Sarasvati himself. As the discussion continued, it became clear that no one was seriously defending the Buddhist Madhyamika philosophy. So the Shamkaracharya asked Bharati Swami to take the Madhyamika side. And the arguments followed. Everybody had to surrender. Later, Swamiji requested that he not be assigned to defend the Madhyamika position.
+
+## Assignment
+I assigned my students to write a commentary on my work. This is one of the times I have tried to integrate classical modes of teaching in the modern university settings. 
+
+I am not worried about the depth or the quality of their commentary. I am just happy that they are all excited about this new project.
+
+## The Teacher
+Today, for no apparent reason, my mind returned to a day that taught me more than philosophy or meditation ever could.
+
+I was sitting on the veranda of Balmiki Campus, where I had been teaching for two or three years. Durga arrived, wheeling his bicycle with a flat tire. He was a son of Banaras in every sense—a distinguished Sanskrit scholar, a revered teacher, a man whose life had been given over to learning. Though long retired, he continued to teach a few extra classes. His pension was too small to support his family.
+
+Without a word, he walked into the principal's office.
+
+I had no wish to overhear, but the quiet corridor carried every sentence. The extra classes had been canceled. Durga pleaded to keep them.
+
+"I have an unmarried daughter," he said softly. "My son is still unemployed. I need these classes."
+
+Then, after a pause that still echoes in my memory, he added, "You were once my student. How can you be so cruel?"
+
+The principal spoke with genuine regret. There were too few students enrolled. The full-time faculty themselves were struggling to fill their classrooms. There was simply no work left to give.
+
+When the conversation ended, Durga stepped out, wiping away his tears.
+From the veranda, I watched him stand silently beside the punctured bicycle.
+Then he turned.
+
+For a long moment, he looked back at the school where he had taught for more than thirty years.
+
+He had moved from one rented apartment to another throughout his life. I found myself wondering whether the school was the only place he had ever truly called home.
+
+As teachers, we all come to inhabit our schools. The classrooms become extensions of ourselves; the corridors remember our footsteps. Yet I doubt I can fully comprehend what that place meant to Durga. Most of us on the faculty—including me—had once been his students. The institution bore the imprint of his life in ways no record could ever capture.
+
+As I watched him disappear down the road, a verse from the Bhagavad Gita rose unbidden in my mind:
+
+> bhunjīya bhogān rudhira-pradigdhān—  
+"I would enjoy pleasures stained with blood."
+
+The verse speaks of the unbearable cost of gain, of victories purchased at the expense of those to whom we owe everything. Standing there, I felt its truth in a way no commentary had ever taught me.
+
+In that moment, time folded in upon itself.
+The old man in white, walking beside his bicycle with its flat tire, was no longer only Durga.
+
+He was every teacher whose life's work is quietly forgotten.
+He was the future waiting for each of us.
+He was me. 
+
+
+## Cool Stream
+Driving back from the banks of Samarā—the Delaware—I drifted inside a tide of songs, enclosed within my own thoughts, only occasionally catching fragments of conversation between Gayatri and Kim. It was difficult to reconcile the quiet river before me with the force that could one day rise in fury and swallow an entire valley. 
+
+The sinking sun scattered its gold across the water, while the blue hills deepened every shade reflected on Samarā's surface. In imagination, I hovered somewhere between Almora and Pokhara, retracing the footsteps of Prem Chaitanya, a sage who dared to dream.
+
+I was nineteen when I first arrived at the Cool Stream—Chisā Kholā. I have often wondered whether Guruji brought me there to offer a glimpse of real life before sending me to Varanasi, where I would inherit not a living institution but the memory of one—a lesson in the phenomenology of loss.
+
+I do not know when Prem Chaitanya left Almora for Pokhara. I only know that he fell in love with the place almost immediately and founded a Gurukula there. My own mentor had been formed within its walls. So had Krishnananda, who seemed to embody love itself. Yet by the time I reached Chisā Kholā, the school had already vanished. Only the sacrificial site remained.
+
+Before departing, Prema had given a single command: the sacred fire must never be allowed to die. As far as I know, it never did.  
+Everything else disappeared.  
+
+A few weathered beams lay abandoned at the edge of the fields. Land once animated by the footsteps of hundreds of students had become private property. Prema himself had become an object of devotion, and the king invited him to serve in parliament. Perhaps, in those days, a sadhu still belonged to something larger than a nation. Two years later, the king dissolved the parliament. Weary of politics, Prema left Nepal and never returned.
+
+Guruji was not a man who fought institutions. When the center lost its founder, the school quietly dissolved into oblivion.
+
+I still do not know why Guruji sent me there.
+For me, the experience was more devastating than seeing the body of a parent abandoned to vultures. I wanted to breathe life back into those empty fields. I wished I possessed enough tapas to revive the dream that Prema had once entrusted to the world.
+
+But wishes carry little weight for those who must struggle each day merely to survive.
+
+There are many ways to live, yet one must first survive to choose among them. Few people aspire to a life that reaches beyond the self, beyond family, beyond even society—a life lived wholly in service of an ideal. The Gurukula was never merely an educational experiment. It was an ancient ideal called back into existence, however briefly.
+
+As the songs continued to unfold around me, I felt Prema's quiet warmth. Memories of Almora dissolved into those of Pokhara, until both seemed to reappear among the hills of New York and Pennsylvania. At the same time, I found myself observing my own mind, watching images from distant places and different years blend effortlessly into one another, as though memory possessed its own hidden geography.
+
+I am afraid to dream.  
+For dreams are almost all the companions I have.  
+Yet none of them are truly mine. They are inherited dreams—visions first imagined and lived by others, entrusted to those who came after. I do not create them so much as receive them.
+
+And yet, in those dreams, Kali dances once more.  
+This time she dances the Ānanda Tāṇḍava—the Dance of Creation.

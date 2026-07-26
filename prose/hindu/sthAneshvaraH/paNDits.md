@@ -2,6 +2,51 @@
 title = "paNDits"
 +++
 
+## And the Books Were Released
+Everyone felt the pressure. The editors, the friends writing introductions, the cover designers—no one had a moment to breathe. I had made up my mind: I would publish all eight of my Sanskrit works, no matter how incomplete they might seem. I was no longer willing to wait.
+
+I had published one book more than twenty years ago. I knew parts of it needed revision, but I had never found the time. The endless procession of so-called academic responsibilities had kept me away from my Sanskrit writings. I knew that if I let this opportunity pass, another two decades might disappear before these books ever saw the light of day.
+
+But then came the health issues. Family drama. Office assignments. Once again, I could see time slipping 
+
+through my fingers.
+
+I had dreamed of publishing some of the books with illustrations, especially the Stavas. In the end, I had to let that dream go. What I find hardest is not the work itself, but people's uncertainty when it comes to commitment. A word should be a word, but that old understanding seems to have faded.
+
+Some friends had promised to cover the printing costs. But when the moment arrived, they found themselves unable to do so. Such things happen.
+
+Still, my resolve did not change.
+
+I sent the manuscripts to Jagadish, who knew printers in Nepal. But the very next day, he had to fly to the Philippines, and I had no direct contact with the press.
+
+It took me a while to realize that neither WhatsApp nor Facebook worked there. Then, at last, a message arrived on Viber:
+
+"Don't worry. I will take care of it."
+
+There were only five days left.
+
+I wanted the books to be released at the IKS conference, where many Sanskrit scholars would be present. There wasn't even enough time for me to review the final proofs. I simply had to trust that everything would be as it should.
+
+When Jagadish returned to Nepal, my hope returned with him. But the very next day, his father suffered a stroke. As an only son, there was nowhere else he could be but beside his father.
+
+The following day, I had a flight to Delhi.
+
+Jagadish called and said, "Don't worry. Twenty copies have been printed. We're sending them by DHL. They should reach you in time."
+
+I did not know what to say.
+
+When I arrived in Delhi, the books had already reached their destination. Jagadish had pulled every string he could to make it happen.
+
+Now everything was ready—except that the book release was scheduled for the next day, today. By then, the conference programme had already been printed, and there was no mention of the book release. Since I had not been able to provide the books earlier, they could not have included the event with any certainty.
+
+Then, this morning, I received a message saying they would add the book release after all.
+
+For a moment, I could hardly believe it.
+
+But things happen.
+In my world, they happen all the time
+
+
 ## Revenge of a Logician
 Two friends grew up together in their gurukula, school. One studied astrology, another logic. They both became quite established in their fields. The logician (Naiyāyika) wrote a good number of commentaries and introduced some new categories. The astrologer made tons of money. Tired of his poverty, the logician embarked to see his successful friend and ask for his help.
 

@@ -59,6 +59,73 @@ After lunch, he asked me to follow him. Partly humored, I followed him all the w
 
 I left the country soon after and learnt upon my return that the king was dead. I still recollect a funny shadow that always made me laugh, and for one time, he was my king.
 
+## My King
+I must have been five when I first met Khemjung.  
+He was a wiry man with a walrus mustache, a patched coat, and worn-out boots. There was nothing regal about him, yet nothing frightening either. Before I could laugh at his odd appearance, my father warned: “He has seen difficult days”. “But he is descended from the royal family. You will address him as King, and you will treat him with respect.”
+
+As it turned out, my king was playful, mischievous, and endlessly amusing. I proudly told my friends that I played with a king, only to become the punchline of every joke. They took turns mocking my imaginary monarch.
+
+When I complained to my father, he answered with unusual firmness.
+“He is the only king you've got.”
+
+Whenever Khemjung visited our home, the same ritual unfolded. We would insist that he stay for a meal; he would refuse once, sometimes twice, before finally accepting with the dignity of a man granting us a favor rather than receiving one. As I grew older, I came to understand that whether or not he truly belonged to a royal lineage mattered little. He believed himself to be a king, and those who loved him quietly agreed to inhabit that kingdom.
+
+Years passed.  
+I left my village for Kathmandu to continue my education. One by one, my brothers followed. Life became consumed by studies, survival, and the small struggles of city life. Somewhere along the way, I forgot about my king.
+
+Then one morning, he appeared at the gate of our tiny apartment. I was living at Tindhara Gurukula, while my two brothers struggled to make ends meet in a rented room nearby. I had no idea how Khemjung had found us.
+
+“Your Majesty!” I shouted, astonished.
+After welcoming him inside, I invited him to share a meal. As always, he declined. As always, I insisted. After several years apart, we sat together over a simple plate of rice and lentils.
+
+When we had finished eating, he leaned back and asked with perfect seriousness, “My subject, how may I grace you this time?”
+
+By then I was old enough to know that this poor man possessed neither wealth nor influence. Even if he wished to help, what could he possibly do?
+
+Yet I was exhausted.
+I had no means to support my brothers. I wished they, too, could stay at the Gurukula, where at least food and shelter were guaranteed. Coming from a remote village, I knew no one important. Without connections, being a good student was rarely enough; the available places were painfully few.
+
+Almost against my own judgment, the words slipped out.
+“Your Majesty, I need my brother admitted to the same hostel.”
+He looked almost offended.
+“Is that all?”
+I nodded.
+He snapped his fingers.
+“I shall settle it with the snap of these.”
+Then he stood.
+“You must come with me.”
+
+Confused, skeptical, and with nothing left to lose, I followed.
+He marched straight to the governor's office.
+The guards stopped us at the gate, just as I expected.
+
+My king drew himself up to his full height.
+“You see my rags and think you can stop me?” he thundered. “I am his uncle from the village. Delay me another minute, and I'll have you dismissed with the snap of my fingers.”
+Whether they believed him or wished to avoid the spectacle, the guards let us pass.
+
+Inside, the secretary was far less accommodating.  
+“Who let you in? Get out!”  
+My king remained unshaken.  
+“Tell him his uncle has come from the village.”  
+She ignored him and reached for the telephone to summon security.  
+Before anyone could stop him, Khemjung slipped through the office door.  
+Moments later, it opened again.  
+The governor himself stepped out, smiling warmly. He greeted Khemjung as though welcoming an old acquaintance and invited us inside.  
+Before anyone could speak, my king caught hold of my shirt, pulled me forward, and declared,  
+“My subject requires my help.”  
+The governor turned to me.  
+“What can I do for you?”  
+
+I was so nervous that my voice nearly deserted me. Somehow, I explained my brother's situation.  
+He listened patiently.  
+“I'll take care of it,” he said.
+Within a few weeks, my brother had been admitted.
+I never saw Khemjung again.
+
+Yet whenever I hear the word king, my mind does not wander to palaces, crowns, or thrones. It returns instead to an impoverished man in a patched coat and weathered boots—a man who carried himself with the quiet certainty of royalty and whose greatest kingdom was the dignity he refused to surrender.
+
+Perhaps that is what I remember most. Not whether he was truly descended from kings, but that for one unforgettable day, my king proved that faith in oneself can open doors that reason insists must remain closed.
+
 ## Rishis
 The biggest desire or the dream the seer from the old times had was to keep his lineage alive. "There shall be nobody in his family who would not know the truth," he claimed. Wrapped under glory, his children adopted lady poverty and wore kusha grass, calling it gold. They were instructed to live outside the flux of time and so they did. And their songs became old and new bards ruled over the town.
 
@@ -249,3 +316,107 @@ Dreams and delusions have at least charm.
 तथापि नैतन् महद् अन्तरम् -  
 यतः परिवार-स्तरे हि शास्त्र-निष्ठा-मात्रा निश्चेतव्या स्यात्। 
 </details>
+
+## In memory of Kalara
+I have known Kalara for only a day. She lived her life months ago, but I have only just come to know her. And yet, her passing—and all that followed—has left me shattered. There are millions like Kalara. All I can do is give shape to my grief.
+
+Kalara was once a blossom, radiant across the hills of Orisha. She married a working man and bore a child; for a while, life held together in quiet hope. Then fate turned. Fever came, and with it the silence of absent medicine. It took both her husband and her child.
+
+Crushed beneath the weight of loss and the pressure of her in-laws, Kalara returned to her brother’s home. Together, they labored for meager wages, stitching survival from day to day. Still, with care and sacrifice, Kalara managed to save $250—selling a cow, a small fortune born of hardship.
+
+Here, Kalara’s story should have found rest. But instead, it is where her brother’s begins.
+
+Jitu went to the bank to withdraw her savings. What met him was not help, but a wall—excuses piled upon excuses, a million reasons to deny what was rightfully his. For three months, he struggled against a system that would not see him, would not hear him. He was alone, though the claim was just.
+
+In the end, desperation broke through where dignity could not. Jitu returned to his sister’s grave, unearthed her remains, and walked three miles with her bones upon his back. Only when he entered the bank carrying the proof of death did the system finally listen.
+
+Yesterday, Jitu walked those three miles again—this time to lay his sister to rest once more.
+
+We have failed Kalara. We have failed Jitu. And in them, we have failed to build a justice system that remembers its humanity.
+
+## The Day My Daughter Was Born:
+Some stories are so dark they seem unworthy of daylight. Yet they cannot be swallowed, digested, or forgotten. They remain lodged within us, turning us into Nilakantha—the blue-throated one who holds poison in his throat, neither consuming it nor spitting it back into the world.
+
+For years, I let such stories rest in silence. But silence has a cost. Lately, I have decided that some truths must be spoken, however harrowing they may be.
+
+This story takes me back to the day my daughter was born.
+
+The hospital told me that she—or rather, my wife—needed blood for a transfusion. In those days, the process was simple in theory. The hospital would hand you a slip of paper, you would take it to the Blood Bank, pay the fee, and arrange the transfusion. If memory serves me right, it cost 350 rupees—about five dollars then.
+
+I did not have even that.  
+It was not because I was unemployed. I had been teaching at Balmiki Campus for more than four months. But the principal had resolved that, as long as he occupied that chair, my salary would never be sanctioned.
+
+Still, I went to him with the hospital's paper in my hand, hoping that the urgency of a medical emergency might soften a heart that months of reason had failed to move.
+
+It did not.  
+
+
+He had known my wife long before she knew me. He used to call her chhori—daughter. So I made one last appeal, not to authority but to humanity.
+
+"She is like your own daughter," I said. "How can you let her die?"  
+His answer has echoed in me ever since.
+"The day she married you," he said, "she died to me."
+
+There are moments when the ground beneath your feet simply disappears.
+
+I did not know where to go or what to do. I walked out to the front of the campus and, in utter desperation, drew the attention of the crowd. People began to gather. Without intending to, I turned my private anguish into a public spectacle.
+A gentleman stepped forward and quietly offered me 500 rupees—more than enough to cover the cost.
+My pride flared before my gratitude.
+"I am not begging," I protested. "I have earned my salary. I have been teaching here for four months. The principal has frozen it out of personal vendetta."
+
+The man listened patiently and then said words that have stayed with me ever since.
+
+"Young man, keep your fight for tomorrow. Today, take care of what needs to be done."
+
+In that instant, I understood.
+I accepted the money, thanked him with all the humility I could gather, and rushed back to the hospital.
+Everything that needed to happen, happened.+++(4)+++
+
+A decade later, that same principal became the Guru of the King, a man many called Badaguru.
+The following year, the monarchy itself vanished.
+
+History has its own ways of settling accounts. But some debts are beyond history. They remain in the throat, like poison—never fully swallowed, never fully released. 
+
+
+<details><summary>विश्वास-टिप्पनी</summary>
+
+Was it natural birth or Cesarean? Makes me wonder how pre-moderns managed!
+Naturally, you repaid the 500?
+The person who refused - was he some spurned match?
+</details>
+
+
+## My Dog
+People who cannot take care of themselves should probably not have pets. I count myself among them. I cannot even pay enough attention to Bhartrhari, who asks for neither food nor shelter. How, then, could I ever hope to care for a living, breathing soul?
+
+And yet, once, long ago, I had a dog.
+
+I must have been five.
+One bright morning, he appeared as though he had walked out of the mist. A street dog. There were plenty of them in our village, wandering the footpaths and resting in the shade, so there was nothing remarkable about a stray. But this one arrived with quiet certainty, as if he had been looking for me all along.
+Out of everyone in the family, he chose me.
+
+From that day on, wherever I went, he followed.
+We village children were wary of street dogs. We chased them away with stones, with sticks, with loud voices. But this dog refused to be chased away. He was patient in the way only those with nowhere else to go can be. He had made up his mind. He was no playful puppy either, but a middle-aged dog with the calm confidence of someone who had already seen enough of the world.
+
+For days, I tried to shake him off.
+I never could.  
+My mother smiled and said, "He is your dog. Accept him, and he will listen to you."  
+Acceptance, it turned out, required only a name.  
+I called him Bhaire.  
+I loved the sound of it. Somehow, he seemed to love it too. Whenever I called, his ears would rise before the rest of him did.
+
+I remember us running down the hill to Jarebar, the wind racing beside us. Coming back was another matter. The climb was steep, and neither of us was built for such ambition. We would slow down together, breathing hard, companions in the same small defeat.
+
+Our cowshed was home to several cows, but the brown one claimed him without ceremony. Every evening he curled up beside her, as though he had always belonged there. Watching them, I often wondered whether animals recognized something in one another that we humans spent our whole lives trying to name.
+
+By then, more than six months had passed.
+
+We had fallen into the effortless rhythm that only children and dogs seem to understand. He asked for almost nothing. A glance. A walk. A place nearby. His loyalty arrived without conditions, and his companionship without demands. Looking back now, I think he was teaching me, long before I knew there was anything to learn.
+
+Then one morning, I stepped outside.
+Bhaire did not come.
+The silence felt unfamiliar.
+I found him in the cowshed, beside the brown cow, exactly where he always slept.
+Only this time, sleep had carried him somewhere I could not follow.+++(4)+++
+That was the first time I learned that even the quietest friendships can leave the loudest absence. 
+

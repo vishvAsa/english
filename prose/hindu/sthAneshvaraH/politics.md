@@ -202,3 +202,44 @@ However, their children, their relatives, their connections, their dealers, all 
 
 Their relatives sold them out. Their virtue ran over. And the same wheel will keep revolving.
 
+## Revolution
+Revolutions are like tides. They gather in silence, beneath the visible world, where unseen currents pull at the seabed long before the waves arrive. They rise with astonishing force, sweeping everything within their reach. And then, inevitably, they recede, leaving behind debris, memories, and questions. I have much to say about the catharsis of revolution. But today, I ask you to hear the story of one that was still being made.
+
+It was a month before I left Dhading. I was twelve.
+In those days, our teachers offered free coaching after school. Parents regarded it as a blessing, almost a sacred gift.+++(4)+++ They revered the teachers, grateful for the extra hour they devoted to shaping our futures.
+
+But those lessons resembled catechism more than tutoring. We were initiated into a different faith.+++(4)+++
+Every afternoon, we recited passages from The Communist Manifesto after our teachers, our voices rising in unison with the conviction only children can summon. Each of us was given a portrait of Karl Marx to keep. We were warned, sternly and repeatedly, never to tell our parents what we learned there. That was my first education in secrecy.
+
+The next day was Constitution Day, commemorating the constitution the King had imposed after abolishing democracy. Somehow, our teachers had obtained a copy of the document. They whispered among themselves with an excitement that felt contagious. We knew something important was about to happen, though we did not know what.
+
+Inside our middle-school classroom, they set the constitution on fire. As the pages curled into ash, we were instructed to chant slogans. We obeyed with the fervor of believers, unaware that history had enlisted us before we were old enough to understand it.
+
+Hari, with his buck teeth and endless chatter, was my closest friend. Our teacher, Baburam, seemed especially fond of us. We craved his approval with the unquestioning devotion children reserve for adults they admire. When he entrusted us with a special assignment, we accepted it as an honor.
+
+I asked my mother to make rice-paste glue. She was delighted that I had been chosen for a project by the teacher himself.
+
+We made black ink from creosote, collecting it from neighbors who happily contributed, proud that we had been selected for such an important school task. No one asked what the project was. No one imagined they were helping prepare an act of political defiance.
+
+Our mission was simple.  
+We coated sheet after sheet of paper until they became featureless fields of black, then laid them out to dry. Perhaps there were a thousand of them.
+
+Late that night, under the cover of darkness, we slipped through the sleeping town. We entered government compounds—the district offices, the police station, the magistrate's office—and pasted our blackened posters across their walls.
+
+Nothing was written on them. Their silence was the message.
+
+The next day, every district-level political leader was arrested.
+
+The authorities had no idea who was responsible. The prisoners could confess nothing they did not know. For that very reason, they were beaten more severely, whipped, and subjected to electric shocks until confession became an impossible demand.
+
+Decades have passed.
+
+Nepal has witnessed revolutions upon revolutions. A country once remembered for its quiet mountains became soaked in the blood of its own children. Revolution, like a river, never seems to end. It keeps moving, always promising progress, always suggesting that just beyond the next bend lies a better future.
+
+Perhaps that is the greatest power of a revolution—not merely to change a nation, but to convince each generation that history is finally flowing in the right direction.
+
+If I were granted a little more time, I would return to those teachers one last time.
+
+I would ask them only one question.  
+Was it worth it? 
+

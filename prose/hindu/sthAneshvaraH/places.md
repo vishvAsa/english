@@ -2,6 +2,67 @@
 title = "Places"
 +++
 
+## The Magic Trail
+It has been a while I have been reminiscing some of the trails that I traversed when I was young. They say we leave our footprints behind. I do not believe that. What I believe is the trails leave their imprints on our mind and the I that I experience as myself becomes integral to the trails that I took in different modes of time. The trails do not care for our footprints. They become alive in our memory though. 
+
+The one trail that I want to share with you today is the one from Jarebar to Pimaltar. This was a trail from our village to our sister's house. Since the age of 8, I have made many hikes through this trail. 
+
+The first thing I remember is the steep hike in Pauwa. There was a small hamlet after an hour's walk. We used to have a tailor there. I remember the villagers for their love for sacrificing buffalos and boars.
+
+And then we would climb further. We used to pick some tindu fruits, depending on season. Climbing further, we would finally see Dyaurali, the summit where different mountains meet. Those days, we used to carry a rock and some leaves to offer to Dyaurali. And since every passer by would do so, Dyaurali was a good size mound by then. Every summit was an abode of Shiva and Shakti for us then. We called every peak Kailash. And we had Shiva with Kali on the mountain peaks and with Sati on the confluence. 
+
+I vividly remember a rock-made water hole for the horses. Volcanic rocks from the millennia stand tall immediately after Dyaurali, and the shrine of Bhairavi decorates the mountain peak. I always wanted to go there, but by the time we reach Dyaurali, I would be already exhausted and we would still have a long way to go, so I could never climb to the peak. Anytime the memory of old Dhading comes, I feel bad I could not manage to climb to the peak. 
+
+We would have two different trails to go further. One time we took the passage through Bhuwan Kharka. There is Shiva, Gupteshwar. Inside a cave, there lies a small Shiva shrine. We preferred another trail, from the opposite mountain, Khuile Dada. But before we touch the naked mountain without vegetation, we would feast on Lapsi, savory plums native to Nepal. I remember the particular tree that always saved some fruits for us. It was may be two hundred feet tall and its branches covered over an acre of land. 
+
+I remember running through Khuile Danda and believing that I was flying. When you run through the mountain edge touching the sky and if there is no other mountain to remind you of your place, it is easy to believe that you can fly. 
+
+There is a Kali temple when you start rolling down the hill. I remember one time I was there with my uncle. It was around 12 by then. I sat there for meditation for five minutes but when I came out, my uncle was very annoyed. For I had spent 5 hours instead. I still do not know how my five minutes could be 5 hours for others.+++(4)+++ 
+
+I remember a family of wood-carvers down by the river Koshi. They used to make all kinds of wooden pots. And around that area had given me the worst nightmare of my life. It was I believe my first trip to my sisters. And we were returning to our house in Jarebar. My sister was swiftly walking ahead and I was running to match her pace. The entire trail was filled with mangos. Some ripe, some over-ripe and the others, rotten. There were mangos everywhere. I tried my best to not step onto them but could not avoid and slipped off. My sister had to come back to help me. 
+
+Now people have what they call development. The mango groves are chopped and turned into the real estate. There are motor ways and so you do not have to walk through those trails. There are no kids waiting under the Lapsi tree for some plums, for they have new video games.+++(4)+++ Kali got a new temple for herself. The old trails are erased. Dyaurali was displaced. Modern educated people do not believe in such things as a pile of rocks can be sacred. 
+
+We used to drink from the river but now it was not possible even to drink from the fountains. I bought some bottled water on the hill-top restaurant the last time I was there. The trails, my sister said, are now gone. I told her, no, they are preserved in my memory very fresh. 
+
+## Magic trails 2
+I could say the only pastime I have is hiking. I therefore cannot count how many trails I have hiked. But no hike comes to my mind as vividly as the hike from Jarebar to Taksar. We had a family ritual of hiking this trail together once a year to visit our maternal uncles. 
+
+When I was little, my parents carried me on their shoulders. The hike begins with a gradual climb of some 2000 feet, then a steep descent to the Thopal River. I vividly remember the yellow field that would have inspired Van Gogh so much more. This rice field sustained the life of all the villagers living on hilltops. In those days, people lived on the hills and used their fields for cultivation. 
+
+These days, they have transformed the agricultural fields into real estate, and they borrow rice from abroad. And then we would climb the hills of Dhuwakot, yet another gradual climb and an eventual recline, and then yet another field, and finally, the short 500-foot climb till we reach our destination.
+
+Our uncles were full-time farmers. In those days, we would not have had any means of communication, but they always assumed we would come and would have prepared two dozen different meals for us. I remember my aunt boiling hot water mixed with salt for us to soak our feet. You cannot even begin to fathom what this meant for us living in villages. I mean the salt. They would have to carry salt from Kathmandu on their back.+++(4)+++ 
+
+One particular event that sticks in my mind does not make sense through a modern rational gaze. You can consider this a delirium.
+
+I must have been six. Maybe seven but not older. We were at the peak of the first hike. Excited to reach the summit, my sister and I were running crazy. She is six years older than myself. Right at the summit was something amazing. A huge enclosure made of bamboo mats. The wall was twice my height, and the area it covered was twice my house. 
+
+Naturally, we both wanted to see what was inside. We used a wooden pole to climb up, and what we saw was not something I could fathom. The entire chamber was filled with hailstones. I even picked some and chewed on. We used to do that in those days. Ice-cold hailstones are completely packed inside the bamboo chamber. Our parents arrived there by then and yelled at us. We approached them, surprised. Father, totally unmoved, said: 
+
+> Oh, Oli made his hailstone chamber here this year. He explained, Oli summons the hailstones to fall on their chosen site so they do not destroy our crops. 
+
+I do remember us donating a sack of rice to some Olis every year, but I could not believe this is what they do.+++(4)+++ 
+
+We all moved on. But my amazement made me sneak back and watch the chamber once again. By then, an old man with blue eyes and a snow-white beard, with long hair but partially bald, had arrived, and he was blowing his trumpet. Although generally we used to get scared of strangers in those days, I felt his company very comfortable. He was as if waiting for me to come back. He gestured for me to dance, and he himself started dancing. It was mostly spinning around. 
+
+And he screamed: Om A Hum, Vajraguru Padmasiddhi Hum. And gestured for me to sing. And I sang. And I danced alongside the old man. I sang and sang and danced and danced, and the old man blew his trumpet again and again. And I heard my sister screaming my name. As if regained my consciousness, I rushed towards her. And she gave me a slap, and we both ran to our parents down the hill. 
+
+I was so hyper that entire trail, I was mostly dancing and singing. In my mind, I could still hear the echo of the trumpet of the old man. By the time we reached our uncles, I had a fever. I can totally see that I had a sensory overload matched with physical exertion. But my uncle had a different theory. In all accounts, I woke up the next morning very fresh. 
+
+I have no explanation for what I saw. I just have a very vivid memory of the chamber, the old man, and the rhythm of the Mantra.
+
+## The Greenhouse
+About a decade ago, I had the luck of growing some mangos in my San Diego backyard. I took a picture and sent it to my father. It was a moment for him to feel proud of me. He had 54 mango trees in his farm, and I at least grew 4 fruits. 
+
+And I moved to Long Island. I built a greenhouse. My friends and students help me build it. And we all chipped in, worked hard, finding the best plants that would make me feel at home again. 
+
+I believe our soul grows like a banana plant, preserving layer after layer of memories from the past. And the I am that I was when I first became conscious of myself is still at the core of my being. I am only aging outward, only adding layers, but the core of my being is still the same child that I was when growing up in Nepal-village. Every single Chilaune tree in our farm had at least one orchid growing naturally. They were so common that they did not even mean much. And then, I came to the snow. 
+
+Distracted by health, writing, teaching, and a million assignments, I am to blame for not insulating the greenhouse properly. Today, returning to the greenhouse was no less than returning from the cremation ground after my mother left this world. 
+
+Every plant had a name. They lived alongside me. And they gave up in the harshest cold. I do not know how plants die. With humans, we have an exact moment of death. Plants die slowly. I do not know if you can pinpoint the exact moment. I think we are also plants and we just are not wise enough to realize this.
+
 ## Ecological concern
 ecological concern is not just an environmental concern; it also is not our concern for other species. at the end of the day, it is the search for our own lost soul. we are the only species capable of making a difference and saving species. nature has given us that power. it is about how we embrace our responsibility.
 
