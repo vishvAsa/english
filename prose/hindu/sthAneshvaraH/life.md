@@ -272,3 +272,7 @@ Both our well-wishers and ill-wishers make us who we become. Sometimes we stop l
 > Khudi ko kar buland itna ke har taqdeer se pehle  
 Khuda bande se khud pooche bata teri raza kya hai.
 
+## Softness Has Its Price
+After days of conferences and a chaotic routine, I finally return to my dream abode. Before settling in for a good night's rest, I feel the urge to have some bedtime tea. I pour water into the electric kettle and press the button—but nothing happens. I check the cord, unplug and plug it back in, and press the button again. Still nothing. Before giving up, I decide to press the button a little harder.  
+Voilà!  
+Around here, you can't rely on the system alone. Sometimes, you need a little muscle too.
