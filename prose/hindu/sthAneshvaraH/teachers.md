@@ -2,6 +2,70 @@
 title = "Teachers"
 +++
 
+## Awakening
+I have met a few awakened people in my life. Some were rather vocal about their awakening. A few years later, I found some of them in rehab. Others believed sincerely in enlightenment as a project, something to be pursued with discipline and determination. They savored every act of virtue as another step toward the ultimate destination. Enlightenment had become a horizon against which they measured their lives.
+
+I was among those who never took up enlightenment as a project. I had no systematic pursuit, no carefully laid path toward awakening. And yet, there were moments.
+
+Guruji Ramananda once went to the caves of Badarikashrama. He had completed his PhD in Advaita Vedanta and wanted to experience what the books had taught him. So he went to the Himalayas, meditated in caves among other hermits, recited mantras, and chanted the Rāma Gītā every day. Six months later, he contracted severe pneumonia and was fortunate to be rescued. After that, he never dared to venture in that direction again. Yet he never quite stopped romanticizing asceticism.
+
+Every generation inherits the pride of the one before it, along with the marks of its disappointments. Guruji had high hopes for me. He imagined that I would one day leave the world behind and devote my life to the Himalayas. New York does get its share of snow, but these were not the Himalayas he had envisioned for me.
+
+There was a time when I even felt guilty about disappointing him, particularly in the early days of my marriage. But my defiance was never really directed at Guruji. It was directed at an orthodoxy that seemed determined to drag civilization backward toward the Paleolithic. I could respect renunciation without accepting that the world must be abandoned, or that the past must always be wiser than the present.
+
+These thoughts were bubbling in my head one day as I walked out of Pashupatinath. It was then that I met Narayan Giri for the first time.
+
+A friend introduced us, and I decided to spend the day with him. When I learned that he had spent fourteen years meditating in the caves of Badarikashrama, I felt I was witnessing a divine coincidence. There I was, standing at the western gate of Pashupatinath, wrestling with my own thoughts about renunciation, when a man emerged into my life who had actually lived the life I had only contemplated from a distance.
+
+Naturally, my first question was whether he was enlightened.
+
+This hermit, somewhere in his late forties, looked at me with the faintest lines of a smile on his face.  
+“No.”  
+
+His answer disheartened me. After fourteen years of such arduous tapas, why would he abandon the quest halfway through? I asked him as much.
+
+He seemed entirely unmoved by my disappointment.  
+“It makes no difference whether I meditate here or in the caves of Badarika.”  
+
+I was deeply dissatisfied with his answer. Perhaps my sadness at hearing it lingered longer than I realized. Why would he say such a thing? Had fourteen years of austerity taught him so little? Or had I misunderstood the very point of those fourteen years?
+
+He must have sensed my irritation, but nothing in his expression suggested that it troubled him.
+
+“Look,” he said, “the first decade went very well. Then things began to change. Big, big Seths—wealthy businessmen—started sending us ghee, rice, lentils, and all kinds of provisions. Soon, there were automatic deliveries: twenty kilos of ghee, fifty kilos of rice, fifty kilos of lentils, and so on. The hermits began selling the surplus in the markets below. Eventually, some realized that not every hermit was equally interested in selling. They took control of the provisions and began selling on behalf of the others. Then some among them took control of the market by force. They started collecting the food on the very day it was delivered.”
+
+He paused, as though he had arrived at the simplest part of the story.  
+“I realized that this was just another marketplace. So I left the caves.”
+
+I did not know what to make of his answer. Some disillusionments are difficult to bear, especially when they come from places we have invested with our deepest hopes. We imagine that the mountains stand outside the world, that caves shelter us from its appetites, that renunciation frees us from the ordinary machinery of desire and possession. And then the marketplace follows us into the mountains. It arrives with sacks of rice and barrels of ghee. It takes root among the hermits.
+
+I had imagined that fourteen years in the Himalayas might bring a man closer to some ultimate truth. Narayan Giri seemed to have discovered something else: that even the caves could not guarantee freedom from the world. Or perhaps he had discovered that freedom did not depend on caves in the first place.
+
+I was not ready to accept that lesson. I had expected a story of transcendence and had been given a story about the price of rice.
+
+I met Swamiji a few more times. We discussed various topics in Vedanta, and I was surprised by his command of the śāstras. There was no shortage of learning in him, whatever the other ascetics might have thought. I once asked whether he would consider giving discourses.
+
+He smiled again.  
+“I don't know what deity makes me speak when you come,” he said, “but I have no desire to give discourses. I have nothing left to do.”
+
+Then I left Nepal, and, as often happens when we leave a place, I forgot many things about it. Narayan Giri was among them.
+
+In 2009, I returned to Nepal for a while and went to Devghat to see Guruji Ramananda. A huge satsang was underway. Some of the most prominent sādhus had gathered there, and I spent the day listening to their discourses. They spoke with authority about the scriptures, the path to liberation, and the nature of ultimate reality. The atmosphere carried the solemnity of an occasion on which spiritual truths were being dispensed to the world.
+
+At the end of the event, I noticed a hermit moving among the people, touching everyone's feet.  
+It was unmistakably Narayan Giri.  
+I was delighted to see him again, and perhaps my ego was quietly pleased that he seemed equally happy to see me. We began chatting like old friends who had somehow managed to find each other again after years of separation. He asked about my life in America. I asked him about his project of enlightenment. There was a trace of sarcasm in my question, and he must have noticed it. But he carried on as though he had not.
+
+It was an extraordinary evening.  
+The following day, I approached some of the prominent sādhus and asked whether they knew Narayan Giri. Only two recognized his name. Both laughed.
+
+“Oh, that idiot! He knows nothing. He just comes and listens to us, but nothing enters his thick head.”  
+I do not remember what I said in response, if I said anything at all. Perhaps there was nothing worth saying.
+
+Narayan Giri had disappointed me because he did not fit the picture. He had left the caves. He had no disciples to gather around him, no discourses to deliver, no spiritual achievement to announce. He seemed to have no need to turn his life into evidence of anything.
+
+Perhaps the deepest freedom is not the freedom to escape the world, but the freedom to stop demanding that the world—or oneself—be something extraordinary.  
+I think Narayan Giri was enlightened.
+
 ## Shorts
 When there were teachers, I was not ready to listen.  When I opened my ears, they were gone.
 

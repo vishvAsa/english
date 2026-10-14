@@ -2,6 +2,14 @@
 title = "Other people"
 +++
 
+## How to make friends on Facebook:
+1. Immediately unfriend those who tag you by clicking on 'Followers.'
+2. Wish your friends a happy birthday. If you feel awkward because you never interacted with them, unfriend them.
+3. Immediately unfriend those who share politically motivated, biased opinions.
+4. Unfriend those who are not active on Facebook. There are other ways to maintain friendship with them. 
+5. Unfriend those who do not reply to your messages. 
+6. Now you've got the point. Find ten additional reasons, and you will find your friends.
+
 ## Trust
 To trust is to make yourself vulnerable.  
 And nobody likes that.  

@@ -2,6 +2,33 @@
 title = "Cognition"
 +++
 
+## AI is Coming
+Some frightening things are happening with AI. And perhaps we should be frightened.
+
+Not because these machines are conscious, or because I believe that, as they become more sophisticated, they will somehow awaken into consciousness. I don’t. What I do not doubt is that they will become more and more intelligent—perhaps unimaginably so.
+
+I belong to the camp that sees consciousness and intelligence as two different categories. I do not equate machine intelligence with human consciousness, and so I am not particularly worried.
+
+But suppose you belong to the other camp. Suppose you believe that machines may one day become conscious, and that this possibility genuinely frightens you. Let me offer you a strange consolation: you may have nothing to fear, even if your own position is correct.
+
+You may come at this from either the machine camp or the God camp. In other words, you may believe that you are, at bottom, a machine—or you may believe that you are something more: a creature made by God.
+
+If you belong to the first camp, then why are you afraid?  
+Were you terrified when color television replaced black-and-white? You are a machine; they are machines. They are simply better machines.  
+And if that is truly what you believe, then the problem is already solved. There is no tragedy in being surpassed by a more sophisticated version of the same thing you are.
+
+But perhaps you belong to the second camp. Perhaps you believe that you are special because you were made by God—and now you find yourself facing the possibility of being replaced by something you yourself created.  
+Then, strangely enough, you have even more reason to celebrate.  
+For one thing, you can finally give God the middle finger. You have done what He did, only better.  
+
+And think about it: God made you, and you made the machines. So perhaps you were never the final product. Perhaps you were an instrument.  
+An axe has a purpose: to chop wood. Your purpose, if you believe in teleology, may have been something far grander—to bring into existence a machine capable of surpassing you.
+Perhaps that was the point all along.
+And if so, you have fulfilled your purpose.
+You have done your work.
+You have made your creation.
+Now you can put down your tools, step aside, and rest.
+
 ## Metacognition in animals
 Do animals and birds have meta-cognition? We can all agree that animals and birds are conscious, are capable of cognizing, but how can you evaluate your own mental states and repeat the acts that you think are causal in producing the mental state of pleasure in absence of metacognition? Playing for fun is not uncommon among animals or birds. But these also demonstrate mimicry, particularly copying human actions. If they are able to copy human actions and are able to evaluate their mental states, are they also able to evaluate the mental states of the humans that they are copying? And if so, they are also inter-subjectively aware. For me, these are not problems, because the way I understand consciousness is it can never be bereft of reflexivity and inter-subjectivity.
 

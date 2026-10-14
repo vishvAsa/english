@@ -2,6 +2,9 @@
 title = "paNDits"
 +++
 
+## Arvind Sharma
+I am very sorry to share with you that Professor Arvind Sharma has departed from this world. He has been the greatest source of inspiration for many among us, including myself. May his wisdom continue to inspire us all, and may all of us make his memory a celebration of Mother Sarasvati.
+
 ## And the Books Were Released
 Everyone felt the pressure. The editors, the friends writing introductions, the cover designers—no one had a moment to breathe. I had made up my mind: I would publish all eight of my Sanskrit works, no matter how incomplete they might seem. I was no longer willing to wait.
 
