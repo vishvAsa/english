@@ -2,6 +2,9 @@
 title = "Cognition"
 +++
 
+## Machine?
+If you came to the realization that everything you ever did was simply mechanical, would you accept that you lived a true life of a machine?
+
 ## AI is Coming
 Some frightening things are happening with AI. And perhaps we should be frightened.
 
